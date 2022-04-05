@@ -1,5 +1,3 @@
-Hi, I’m @C00L3RWASTAKEN
-
 
 <!---
 C00L3R ⭐#9502
